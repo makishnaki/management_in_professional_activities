@@ -1,0 +1,1 @@
+# management_in_professional_activities
